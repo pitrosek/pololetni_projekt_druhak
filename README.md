@@ -1,0 +1,1 @@
+# pololetni_projekt_druhak
